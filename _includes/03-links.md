@@ -1,1 +1,1 @@
-[This Catholic Journey Facebook Page](https://www.facebook.com/thiscatholicjourney)
+[This Catholic Journey Facebook page](https://www.facebook.com/thiscatholicjourney)
