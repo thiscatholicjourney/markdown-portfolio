@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[This Catholic Journey Facebook page](https://www.facebook.com/thiscatholicjourney)
